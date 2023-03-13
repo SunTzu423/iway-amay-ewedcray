@@ -1,2 +1,0 @@
-# iway-amay-rewedscay
-epyay
